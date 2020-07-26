@@ -19,6 +19,6 @@ learning from :- https://www.educative.io/mycourses
 
 
 
-_____________________________ #### kEEP IN MIND iF i CAN DO IT tHEN ITS NOT A BIG THING FOR YOU!_____________________
+_____________________________ kEEP IN MIND iF i CAN DO IT tHEN ITS NOT A BIG THING FOR YOU! _____________________________
 
 

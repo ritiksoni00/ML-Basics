@@ -9,3 +9,16 @@ learning from :- https://www.educative.io/mycourses
 ![educative](https://user-images.githubusercontent.com/47344024/86536453-5cbf3d00-bf05-11ea-9342-b05997d5eaaf.png)
 
 
+
+
+
+
+
+
+
+
+
+
+_____________________________#### kEEP IN MIND iF i CAN DO IT tHEN ITS NOT A BIG THING FOR YOU!_____________________
+
+

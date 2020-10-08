@@ -5,7 +5,6 @@
    ![Annotation 2020-07-07 161629](https://user-images.githubusercontent.com/47344024/86769900-7c717500-c06d-11ea-81d5-4fbdcc0a63d2.png)
 </div>
 
-currently im making notes and soon ill upload them(Currently my phone;s camera is down)
 
 learning from :- https://www.educative.io/mycourses
 
